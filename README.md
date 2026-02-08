@@ -10,7 +10,7 @@ TG通知群：
 
 QQ群：
 
-  https://www.linkdd.cn/whtvip
+  	https://www.linkdd.cn/whtvip
 
 关于免费版：
 	
